@@ -12,4 +12,4 @@ aizehh is cring nagge crinre
 
 uwu
 
-jc nasaysayan i'm here
+jc nasaysayan was here
